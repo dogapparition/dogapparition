@@ -1,5 +1,5 @@
 <img src="https://i.postimg.cc/rwq17t8x/Gtq-YNJl-WQAEu-YUp-removebg-preview.png">
-<p style="text-align: center;">hi, im sammy but you also call me elliot!
+<p style="text-align: center;">hi, im johnny but you also call me elliot!
 <br>i am a very busy bee, i am working to go to grad school for biochem!
 	<br>i love all things morute and pink. im a sucker for ethel cain and nicole dollanganger.
 	<br>i have major special interests in supernatural and invincible (7 years!!!), talk to me about them. ^_^
